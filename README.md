@@ -1,1 +1,0 @@
-# Berdnyk CV
